@@ -54,6 +54,10 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 * Evaluasi diri mengenai apa yang perlu diperbaiki dan diperbaharui.
 * Evaluasi dan perbarui diri setiap hari.
 
+**Apa indikator kesuksesan kepemimpinan:**
+
+*Target yang ditentukan dalam hidup, contoh : jika dalam perusahaan ada target dan dalam kepemimpinan dari anda, melampaui target maka itu salah satu indikator bahwa kepemimpinan anda meningkat.
+
 
 
 
