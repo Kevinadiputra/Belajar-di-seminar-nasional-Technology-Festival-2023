@@ -20,9 +20,9 @@ contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karen
 1.) Proaktif
 Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menjadikannya tantangan dan bukan kesulitan.
 
-proaktif bertanya sebelum diminta
+* proaktif bertanya sebelum diminta
 
-aktif bertanya setelah diminta.
+* aktif bertanya setelah diminta.
 
 
 2.) Tujuan
@@ -31,17 +31,17 @@ aktif bertanya setelah diminta.
 3.) Skala prioritas
 
 
-Skala priotitas memudahkan kita untuk management pekerjaan.
+* Skala priotitas memudahkan kita untuk management pekerjaan.
 
 
 4.) Berfikir menang-menang
 
 
-Tidak egois dimana hanya memikirkan win lose, tetapi ubah menjadi win win.
+* Tidak egois dimana hanya memikirkan win lose, tetapi ubah menjadi win win.
 
 5.) Empati
 
-Pahami orang lain agar orang lain memahami mu.
+* Pahami orang lain agar orang lain memahami mu.
 
 
 
