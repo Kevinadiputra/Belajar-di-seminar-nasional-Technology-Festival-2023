@@ -1,11 +1,12 @@
 # Technofest-2023
 
+**16 september 2023** 
+
 ## Great Leardership Great Result
 
-Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result" dan "Peran Mahasiswa pada Green Technology di Era Reolusi Industri 4.0". 
+Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result". 
 * Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. 
-
-**16 september 2023**  
+ 
 
 * Perbedaan pemimpin dan kepemimpinan:
 Pemimpin adalah orang yang memimpin sedangkan kepemimpinan adalah sifat dan seni dari pemimpin.
@@ -62,7 +63,33 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 ## Peran Mahasiswa pada Green Technology di Era Reolusi Industri 4.0
 
+Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Peran Mahasiswa pada Green Technology di Era Reolusi Industri 4.0"
+
 * Pembicara: Kemahyanto Eaudi, S.Kom.,M.T.
+
+1.) Perkenalan Green Technology
+
+* Konsep Green Tecknology muncul dari kekhawatiran peneliti terhadap dampak ekologis dari industri yang menggunakan bahan bakar batu bara. Greeen technologi muncul untuk menyelamatkan bumi dari dampak buruk industri di masadepan.
+
+* Green Tecknology pada dasarnya adalah teknologi yang ramah lingkungan. dimana green technology ini menggabungkan teknologi modern dengan ilmu lingkungan.
+
+2.) Tujuan Green tecknology
+
+* Mengurangi dampak lingkungan.
+  
+* keberlangsungan ekonomi.
+  
+* Peningkatan kualitas hidup.
+
+3.) Brances of Green Technology
+
+* Green Technology
+
+* Green Energy
+
+* Green IT
+
+* Green Building.
 
 
 
