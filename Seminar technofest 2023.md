@@ -1,8 +1,9 @@
 # Technofest-2023
 
+## Great Leardership Great Result
 
-Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result". 
-* Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. dan Kemahyanto Eaudi, S>Kom.,M.T.
+Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result" dan "Peran Mahasiswa pada Green Technology di Era Reolusi Industri 4.0". 
+* Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. 
 
 **16 september 2023**  
 
@@ -58,6 +59,14 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 **Apa indikator kesuksesan kepemimpinan:**
 
 * Target yang ditentukan dalam hidup, contoh : jika dalam perusahaan ada target dan dalam kepemimpinan dari anda, melampaui target maka itu salah satu indikator bahwa kepemimpinan anda meningkat.
+
+## Peran Mahasiswa pada Green Technology di Era Reolusi Industri 4.0
+
+* Pembicara: Kemahyanto Eaudi, S.Kom.,M.T.
+
+
+
+
 
 
 
