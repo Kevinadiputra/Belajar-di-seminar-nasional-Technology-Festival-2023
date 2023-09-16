@@ -83,14 +83,19 @@ Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "
 
 3.) Brances of Green Technology
 
-* Green Technology
+* Green Technology.
 
-* Green Energy
+* Green Energy.
 
-* Green IT
+* Green IT.
 
-* Green Building
-** IKN 2023
+* Green Building.
+
+4.) Bagaimana cara mencapai tujuan green technology
+
+* Merubah mindset untuk keberlanjutan.
+
+* Memanfaatkan teknologi baru dan kuno.
 
 
 
