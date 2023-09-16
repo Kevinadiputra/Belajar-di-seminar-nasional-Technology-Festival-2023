@@ -1,10 +1,11 @@
-# Technofest2023
+# Technofest-2023
 
 
 Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result". 
 * Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. dan Kemahyanto Eaudi, S>Kom.,M.T.
 
 **16 september 2023**  
+
 * Perbedaan pemimpin dan kepemimpinan:
 Pemimpin adalah orang yang memimpin sedangkan kepemimpinan adalah sifat dan seni dari pemimpin.
 * Mengapa ada pemimpin yang sukses dan yang belum sukses:
@@ -37,6 +38,10 @@ Skala priotitas memudahkan kita untuk management pekerjaan.
 
 
 Tidak egois dimana hanya memikirkan win lose, tetapi ubah menjadi win win.
+
+5.) Empati
+
+Pahami orang lain agar orang lain memahami mu.
 
 
 
