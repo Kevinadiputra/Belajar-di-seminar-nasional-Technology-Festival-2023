@@ -11,9 +11,9 @@ Pemimpin adalah orang yang memimpin sedangkan kepemimpinan adalah sifat dan seni
 * Mengapa ada pemimpin yang sukses dan yang belum sukses:
 pemimpin yag sukeses melakukan kebiasaan pemimpin yang sukses, sebaliknya. maka untuk menjadi pemimpin yang sukses adalah sebuah pilihan.
 * Apa itu Habbit? :
-Habbit adalah kebiasaan
+- Habbit adalah kebiasaan
 
-Contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
+- Contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
 * Habbit yang memperkuat sifat kepemimpinan:
 
 
