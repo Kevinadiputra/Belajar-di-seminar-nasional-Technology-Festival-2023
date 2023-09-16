@@ -97,6 +97,12 @@ Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "
 
 * Memanfaatkan teknologi baru dan kuno.
 
+5.) Revolusi Industri 4.0
+
+* 10 Strategi prioritas nasional untuk makng Indonesia 4.0
+ 
+* 1.) Pemberdayaan UMKM  
+
 
 
 
