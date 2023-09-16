@@ -1,4 +1,6 @@
 #Technofest2023
+
+
 Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result". 
 *Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. dan Kemahyanto Eaudi, S>Kom.,M.T.
 
@@ -12,16 +14,28 @@ Habbit adalah kebiasaan
 
 contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
 *Habbit yang memperkuat sifat kepemimpinan:
+
+
 1.) Proaktif
 Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menjadikannya tantangan dan bukan kesulitan.
 
 proaktif bertanya sebelum diminta
 
 aktif bertanya setelah diminta.
+
+
 2.) Tujuan
+
+
 3.) Skala prioritas
+
+
 Skala priotitas memudahkan kita untuk management pekerjaan.
+
+
 4.) Berfikir menang-menang
+
+
 Tidak egois dimana hanya memikirkan win lose, tetapi ubah menjadi win win.
 
 
