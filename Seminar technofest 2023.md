@@ -89,7 +89,8 @@ Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "
 
 * Green IT
 
-* Green Building.
+* Green Building
+** IKN 2023
 
 
 
