@@ -43,7 +43,11 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 5.) Empati
 
-* Pahami orang lain agar orang lain memahami mu.
+* Pahami orang lain agar orang lain memahami mu. Menjadi pendengar yang baik
+
+6.) Sinergi
+
+* 
 
 
 
