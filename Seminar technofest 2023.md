@@ -13,7 +13,7 @@ pemimpin yag sukeses melakukan kebiasaan pemimpin yang sukses, sebaliknya. maka 
 * Apa itu Habbit? :
 Habbit adalah kebiasaan
 
-contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
+Contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
 * Habbit yang memperkuat sifat kepemimpinan:
 
 
