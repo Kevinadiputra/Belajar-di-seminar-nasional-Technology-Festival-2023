@@ -51,7 +51,10 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 7.) Asah Gergaji 
 
-* 
+* Evaluasi diri mengenai apa yang perlu diperbaiki dan diperbaharui.
+* Evaluasi dan perbarui diri setiap hari.
+
+
 
 
 
