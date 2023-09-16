@@ -56,7 +56,7 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 **Apa indikator kesuksesan kepemimpinan:**
 
-*Target yang ditentukan dalam hidup, contoh : jika dalam perusahaan ada target dan dalam kepemimpinan dari anda, melampaui target maka itu salah satu indikator bahwa kepemimpinan anda meningkat.
+* Target yang ditentukan dalam hidup, contoh : jika dalam perusahaan ada target dan dalam kepemimpinan dari anda, melampaui target maka itu salah satu indikator bahwa kepemimpinan anda meningkat.
 
 
 
