@@ -99,9 +99,21 @@ Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "
 
 5.) Revolusi Industri 4.0
 
-* 10 Strategi prioritas nasional untuk makng Indonesia 4.0
- 
-* 1.) Pemberdayaan UMKM  
+* 10 Strategi prioritas nasional untuk makng Indonesia 4.0 untuk masalah greeen tecnology.
+
+6.) Integrasi green technology dan Industri 4.0
+
+* Efisiensi dan penggunaan sumber daya.
+
+7.) Studi Kasus Green Tecknology
+
+* Kendaraan Ramah lingkungan.
+
+* Energi Terbarukan.
+
+* Daur Ulang dan pengelolaan Limbah.
+
+
 
 
 
