@@ -27,6 +27,8 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 2.) Tujuan
 
+* Tujuan, sasaran, atau matalamat adalah gagasan tentang masa depan atau hasil yang diinginkan, dibayangkan, direncanakan, dan dimaksudkan untuk dicapai seseorang atau sekelompok orang.
+
 
 3.) Skala prioritas
 
