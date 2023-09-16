@@ -19,6 +19,10 @@ proaktif bertanya sebelum diminta
 
 aktif bertanya setelah diminta.
 2.) Tujuan
+3.) Skala prioritas
+Skala priotitas memudahkan kita untuk management pekerjaan.
+4.) Berfikir menang-menang
+Tidak egois dimana hanya memikirkan win lose, tetapi ubah menjadi win win.
 
 
 
