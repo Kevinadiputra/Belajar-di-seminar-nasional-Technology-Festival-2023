@@ -47,6 +47,10 @@ Berani mencoba, jika ada permasalahan adalah kembali mencari solusi dengan menja
 
 6.) Sinergi
 
+* Bagaimana kita dan teman atau tim saling mengingatkan untuk saling melengkapi satu sama lain.
+
+7.) Asah Gergaji 
+
 * 
 
 
