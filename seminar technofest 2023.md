@@ -1,19 +1,19 @@
-#Technofest2023
+# Technofest2023
 
 
 Pembelajaran yang saya dapat dari seminar nasional technofest 2023 dengan tema "Great Leadership Great Result". 
-*Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. dan Kemahyanto Eaudi, S>Kom.,M.T.
+* Pembicara :Ferdi Kawi, ST., CPS C.TNNLP. dan Kemahyanto Eaudi, S>Kom.,M.T.
 
 **16 september 2023**  
-*Perbedaan pemimpin dan kepemimpinan:
+* Perbedaan pemimpin dan kepemimpinan:
 Pemimpin adalah orang yang memimpin sedangkan kepemimpinan adalah sifat dan seni dari pemimpin.
-*Mengapa ada pemimpin yang sukses dan yang belum sukses:
+* Mengapa ada pemimpin yang sukses dan yang belum sukses:
 pemimpin yag sukeses melakukan kebiasaan pemimpin yang sukses, sebaliknya. maka untuk menjadi pemimpin yang sukses adalah sebuah pilihan.
-*Apa itu Habbit? :
+* Apa itu Habbit? :
 Habbit adalah kebiasaan
 
 contoh dari habbit: saat gosok gigi tanpa berfikir mau dari kiri atau kana karena sudah menjadi kebiasaan.
-*Habbit yang memperkuat sifat kepemimpinan:
+* Habbit yang memperkuat sifat kepemimpinan:
 
 
 1.) Proaktif
